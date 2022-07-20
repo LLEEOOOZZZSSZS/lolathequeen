@@ -1,7 +1,7 @@
 - Hi!! I'm Lola.
 - I love dancing, theater, ballet, and cooking!
 - I'm currentley 19yrs of age.
-- DNI IF: You're a tr/anny, a f!aggot, LGBTQ+, -16, vegan.
+- DNI IF: You're trans, a f!aggot, LGBTQ+, -16, vegan.
 - INT IF: Straight, cis, 16+.
 
 <!---
